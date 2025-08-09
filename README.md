@@ -1,4 +1,4 @@
-# Olá, eu sou Tamiris 👩‍🔬👩‍💻
+# Olá, eu sou a Tamiris 👩‍🔬👩‍💻
 
 Seja bem-vindo(a) ao meu espaço!
 
